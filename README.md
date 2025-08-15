@@ -1,0 +1,3 @@
+Eric Vincent Bahian
+ITS152L-FOPM01
+BSIT
